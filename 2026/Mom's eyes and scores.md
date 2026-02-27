@@ -1,0 +1,33 @@
+ # HOME #
+  - When I stay at home with my mom,my mood is bad and seriousely.
+  - I can not sure that this is a nomal thing.
+  - At home,I hardly never studay hard.I think the reason is from my lazy.
+  - But when I study at larbry this monning and noon I found I can keep atantion and study hard by mysilef.
+  - The most importent thing is my could study hard without my mom's eyes.
+  - BUT my mom never belief that,so that she alays stares me.
+  - That's why I coulden't get relarty and freemood.
+  - I tried so much ways to get her marcy.
+  - But I can't.
+  - That's terrable.
+  - I can't decide that if I play phone and use WIFI.
+  - Ofcouse,I know ctrling myself keepaway the phone and WIFI is a improsibe thing.
+  - But I think I had to face them by mysilf,if everytime she come,I mabey never learn to use them healthly.
+  - I am upset.
+ # SCORES #
+  - The nineth exam is coming,at tomorro.
+  - I trying to keep myself clam.But noway.
+  - I am a losser now.I can't comein anyone university,and I still seriouse at there.
+  - I sould study hard more and more.Everyday and nite.
+  - To keep sure I can gat enougf scores to comein a little good university.
+  - To be truth,I am tired.
+  - Not noly study and scores,and my mom and her eyes.They are everywhere.
+  - I think I am not unlike study,but which thing couase today's sitiuation?
+  - Where is ansower?Is me or is my mom?
+  - I only can change myself.
+ # FUTUARE #
+  - Mabey I just keep my sad at there.what's mood will I have when I see them after servre years.
+  - If I'll think they are not problem?
+  - Whatever I never giveup.
+  - I'll keep more care at my study and the reasion about my mom.
+  - That's I had to face by mysilef.
+  - Godbye hope I can bring a better scores after severe days.
